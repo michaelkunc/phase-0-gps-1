@@ -6,4 +6,4 @@
 
 (http://nomadgardens.org)
 
-**We don't mind a little conflict now and then**
+**We don't mind a little conflict now and then!!**
